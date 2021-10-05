@@ -26,6 +26,7 @@
 - [Anne Roumanoff](https://en.wikipedia.org/wiki/Anne_Roumanoff)
 - [Blanche Gardin](https://en.wikipedia.org/wiki/Blanche_Gardin)
 - [Marina Rollman - Les Français](https://www.youtube.com/watch?v=ZuDh23a2CQ4)
+- [Cyprien](https://www.youtube.com/c/cyprien)
 
 ## Liens informatifs
 
